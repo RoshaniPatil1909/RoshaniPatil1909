@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **rpatil19092001@gmail.com**
 
-- ⚡ Fun fact **Im funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
